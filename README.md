@@ -1,1 +1,1 @@
-https://superflyarchi.github.io/rsschool-cv/cvgit
+https://superflyarchi.github.io/rsschool-cv/cv
