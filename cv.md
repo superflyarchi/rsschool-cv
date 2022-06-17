@@ -1,4 +1,4 @@
-<a href="https://ibb.co/bs1f9X5"><img src="https://i.ibb.co/ZBdZDxz/IMG-3671.jpg" alt="IMG-3671" border="0"></a>
+<a href="https://ibb.co/bs1f9X5"><img src="https://i.ibb.co/bs1f9X5/IMG-3671.jpg" alt="IMG-3671" border="0"></a>
 # **Gulkevich Arthur**
 ## Client account manager
 ***
